@@ -1,0 +1,1 @@
+# xauusd_asian_emelyn_bot
